@@ -1,17 +1,44 @@
 ## Hello Ponytown!
 
-I have never made one of these before, so forgive me if for a while this is shit or just bad lmao, be nice to me :p
+>I have never made one of these before, so forgive me if for a while this is shit or just bad lmao, be nice to me :p
 
-We are MossyPaws!  We are a polyfragmented DID system that enjoys sitting on Ponytown in our free time.  Feel free to sit with us!  We might not always be down for a convo, but we usually are alright with overall interaction.  This page is VERRRRY much still a WIP!!  So sorry if you found this so early </3
 
-Admittedly, I have no idea what I'm doing and I don't really understand a lot of what I'm seeing.  If anybody has any templates or anything that's simple to do, please tell me!  Thank you!
+We are MossyPaws!  We are a polyfragmented DID system that enjoys sitting on Ponytown in our free time.  Feel free to sit with us!  We might not always be down for a convo, but we usually are alright with overall interaction.
 
-*test* **test** ***test***
->test<
+Our main fronter is Chara, BUT if you see a Pomni, Pinkie, Toga, or Raibaru pony, that's the same alter!!  They are multisourced.  All sourcemates are welcome!  Just don't be weird.
 
-test
+Collectively we enjoy Undertale, Minecraft, Dandy's World, MLP, MHA, and a lot more.  Feel free to ask :3c
+______
 
-/test
+**! DO NOT INTERACT LIST !**
+
+Radqueers / Harmful Trans IDs, including microlabels.
+
+MAGA, Pro-Lifers, etc.
+
+Anti Good Faith Labels, TERFs. etc.
+
+Anti Agere, Furry, Therian, etc.
+
+T.R.A.S.H.
+
+Anti Non-Harmful Paraphilia.
+
+Pro Harmful Paraphilia.
+
+Fans Of TCOAAL Or Similar Media.
+
+Pro Unnecessary Censorship.
+
+Anti Kink / Anti Kink Pride.
+
+Minors.
+
+AI supporters.
+
+Those who cannot separate art from artist within reason.
+
+
 
 
 <!--
