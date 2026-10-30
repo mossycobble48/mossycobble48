@@ -5,7 +5,7 @@
 
 We are MossyPaws!  We are a polyfragmented DID system that enjoys sitting on Ponytown in our free time.  Feel free to sit with us!  We might not always be down for a convo, but we usually are alright with overall interaction.
 
-Our main fronter is Chara, BUT if you see a Pomni, Pinkie, Toga, or Raibaru pony, that's the same alter!!  They are multisourced.  All sourcemates are welcome!  Just don't be weird.
+Our current pony usually shows who is froning, BUT if you see a Pomni, Pinkie, Toga, Chara, or Raibaru pony, that's the same alter!!  They are multisourced.  All sourcemates are welcome!  Just don't be weird.
 
 Collectively we enjoy Undertale, Minecraft, Dandy's World, MLP, MHA, and a lot more.  Feel free to ask :3c
 ______
