@@ -4,6 +4,8 @@ I have never made one of these before, so forgive me if for a while this is shit
 
 We are MossyPaws!  We are a polyfragmented DID system that enjoys sitting on Ponytown in our free time.  Feel free to sit with us!  We might not always be down for a convo, but we usually are alright with overall interaction.  This page is VERRRRY much still a WIP!!  So sorry if you found this so early </3
 
+Admittedly, I have no idea what I'm doing and I don't really understand a lot of what I'm seeing.  If anybody has any templates or anything that's simple to do, please tell me!  Thank you!
+
 *test* **test** ***test***
 >test<
 
